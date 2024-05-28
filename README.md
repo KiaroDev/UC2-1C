@@ -19,4 +19,5 @@
 >4. [**Canva ( LINGUAGEM DA PROGRAMAÇÃO )**](https://www.canva.com/design/DAGEjciwvGs/vSqc2OGltcH_2QQ1LCnF5w/edit?utm_content=DAGEjciwvGs&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton).
 >5. [**Miro ( BUSINESS MODEL CANVA )**](https://miro.com/app/board/uXjVKHnqTvU=/?share_link_id=622609938165).
 >6. [**Docs ( EMPREGO DOS SONHOS )**](https://docs.google.com/document/d/1lkrabYPw5rIAW71s9Y5hFUaoZOvZV-W9dzkZvuSpA_g/edit?usp=sharing).
+>7. [**Planilhas ( DIAGRAMA DE GANTT )**](https://docs.google.com/spreadsheets/d/1ewqQmUoS09z-dSF6Pn1uhlkEblI-ztx5bs8cDV_n3d8/edit?usp=sharing).
 
